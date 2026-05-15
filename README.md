@@ -1,1 +1,1 @@
-"# MamanDouce - Version Propre et R‚aliste" 
+"# MamanDouce - Version Propre et RÃ©aliste" 
